@@ -18,4 +18,4 @@
 
 ### Game
 
-​	Now I had been attracted deeply by elden ring. Anyway, I like rpg game such as Trails series.
+​	Now I had been attracted deeply by elden ring. Anyway, I like rpg game such as Trails series. Yeah, MineCraft mod creater me too .

@@ -8,7 +8,7 @@
 
 ### Mathematics and Philosophy
 
-​	I'm learning **algebraic geometry**, which I believe the world's real and eldritch truth obtains. Although I study in physics, I do not believe that the possibility in quantum is the face behind the veil of every phenomena. So that I choose fate and liberal consciousness.
+​	I'm learning **algebraic geometry**, which I believe the world's real and eldritch truth obtains. Although I study in physics, I do not believe that the possibility in quantum is the face behind the veil of every phenomena. So that I believe and want to choose fate and liberal consciousness myself.
 
 ​	Yet I know society drowning into geopolitical interests , I will pursue myself and the liberty in mind. I hate what people call a word -ism, it's just used to restrict us and attempt to divide people into  hostile fields. Whatever belief and philosophy from geopolitical interests just be like an asshole, especially Marx and communism ,foolish, cheat, idiot. 
 
